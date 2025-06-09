@@ -1,2 +1,2 @@
 # ngtlong.iulinhqua
-Co linh
+Xin loi Linh ma, tha thu cho tui di 😭
